@@ -28,5 +28,6 @@ Passionate about technology, continuous learning, and building web applications 
 ## 📫 Connect With Me
 
 - LinkedIn: https://www.linkedin.com/in/betelhem-alemu-a79768335/
+- email: betelhemalemubetyy@gmail.com
 
 ⭐ Always learning, building, and growing.
